@@ -1,4 +1,4 @@
-# 
+# Gratuit liquidity sniper bot préréglages pour Mac OS | Premium liquidity sniper bot préréglages pour PC Windows. Avec extraction MEV et gestion de marge — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
